@@ -10,3 +10,5 @@ Quando finisco, voglio vivere a Londra con il mio fidanzato - speriamo che possi
 Addesso, studio le tratte dell'api.
 
 ciao
+
+buona serra
